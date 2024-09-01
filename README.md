@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @nilerolir
+- 👀 I’m interested in tissue engineering, regeneration, image analysis, and microscopies.
+- 🌱 I’m currently learning advanced techniques in biomedical research and image processing.
+- 💞️ I’m looking to collaborate on projects related to tissue regeneration and innovative imaging technologies.
+- 📫 How to reach me: [nilerolir@gmail.com]
+- 😄 Pronouns: [Male]
+- ⚡ Fun fact: I love esports and cats.
